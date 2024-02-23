@@ -14,6 +14,8 @@
                            always off-tab﹑afk ﹑public chats off
                              i dont interact first ⯌ (unless ur fei or ace)
                            𝜗𝜚  : any actions ok ﹑"!!!!" spammer
+                               ﹑i don't initiate anything so if you wanna sit or
+                             cuddle together etc. tell me first and lmk, idm
                                    gego / sugusato enthusiast
 ### ★ NOTE
                               i flirt back as a joke (w/ friends)
@@ -23,7 +25,7 @@
                             一    dont be too comfortable w/ me if:
                                  we aint close or we just met 
                             no i will not buy u robux or get u nitro.
-                                   unless you my sillies :3 
+                                   unless you my sillies :3
 
 
 ![haha](https://media.discordapp.net/attachments/1210429182950113312/1210483800983740436/pony-town-Soft_boy_childe_owned-kiss-lift-hoof-blinking-name-padded-4x.gif?ex=65eab9e3&is=65d844e3&hm=e5cdbac250bf650e73839e756a6c15a8ff50eeea6000b2ef48414346a0e78436&=)
