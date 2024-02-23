@@ -12,7 +12,7 @@
                                     
 ### ★ BYI
                            always off-tab﹑afk ﹑public chats off
-                             i dont interact first ⯌ (unless ur fei or ace)
+                             i dont interact first ✦ (unless ur fei or ace)
                            𝜗𝜚  : any actions ok ﹑"!!!!" spammer
                                ﹑i don't initiate anything so if you wanna sit or
                              cuddle together etc. tell me first and lmk, idm
