@@ -1,5 +1,5 @@
 
-![sgr](https://media.discordapp.net/attachments/965567522961231892/1211683495236337786/20240224_170429.jpg?ex=65f851b1&is=65e5dcb1&hm=4c2480fe37cb940dcacad68a5f7174204e3b338140da597937d4535f1c86940c&=&format=webp)
+![sgr](https://media.discordapp.net/attachments/965567522961231892/1211683495236337786/20240224_170429.jpg?ex=65f851b1&is=65e5dcb1&hm=4c2480fe37cb940dcacad68a5f7174204e3b338140da597937d4535f1c86940c&=&format=webp&width=881&height=567)
 
 ### ★ 夏油傑
                               𝜗𝜚  : NEX OR HAZE
@@ -14,8 +14,7 @@
                            always off-tab﹑afk ﹑public chats mostly off
                              i dont interact first ✦ (unless ur fei or ace)
                            𝜗𝜚  : any actions ok ﹑unfiltered spammer
-                               ﹑i don't initiate anything so if you wanna sit or
-                             cuddle together etc. tell me first and lmk, idm
+                               ﹑i just shitpost troll or chill most of the time
                                 self-indulgent gego / sugusato enthusiast
 ### ★ NOTE
                            i'll ignore u sometimes sorry (i'm lazy 2 talk)
