@@ -1,5 +1,5 @@
 
-![sgr](https://media.discordapp.net/attachments/1210429182950113312/1210453400949366854/Your_paragraph_text_3.png?ex=65ea9d93&is=65d82893&hm=1df5be38fb259f8bcc3bbf076f4da5c9757aba53237b6575d2f833f4d3477b3f&=&format=webp&quality=lossless&width=612&height=646)
+![sgr](https://media.discordapp.net/attachments/965567522961231892/1211683495236337786/20240224_170429.jpg?ex=65f851b1&is=65e5dcb1&hm=4c2480fe37cb940dcacad68a5f7174204e3b338140da597937d4535f1c86940c&=&format=webp)
 
 ### ★ 夏油傑
                               𝜗𝜚  : NEX OR HAZE
@@ -11,15 +11,15 @@
                                DO NOT copy my skins !!
                                     
 ### ★ BYI
-                           always off-tab﹑afk ﹑public chats off
+                           always off-tab﹑afk ﹑public chats mostly off
                              i dont interact first ✦ (unless ur fei or ace)
-                           𝜗𝜚  : any actions ok ﹑"!!!!" spammer
+                           𝜗𝜚  : any actions ok ﹑unfiltered spammer
                                ﹑i don't initiate anything so if you wanna sit or
                              cuddle together etc. tell me first and lmk, idm
-                                   gego / sugusato enthusiast
+                                self-indulgent gego / sugusato enthusiast
 ### ★ NOTE
-                              i flirt back as a joke (w/ friends)
-                                doesnt rlly mean im interested romantically !!
+                           i'll ignore u sometimes sorry (i'm lazy 2 talk)
+                               flirting back =/= interested romantically !!
                              dont be clingy unless you're MY satoru / my sillies ^_^
                              
                             一    dont be too comfortable w/ me if:
