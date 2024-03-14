@@ -3,7 +3,7 @@
 - dont copy my pixels
 - always off-tab, afk and spec + usually has public chats off, any actions ok
 - i'm mostly seen in docks, jjk area or near enstaries area and u will probably see me in regiments so hi
-- i get muted ALOT so i call my ~~alt acc~~ bae to pull up ^_^
+- i get muted ALOT so i call my bae to pull up ^_^
 - just joking and troll or chill most of the time
 - ion reply or talk sometimes (im mewing) and i'll ignore u sometimes sorry (i'm lazy 2 talk)
 - anyone can int 
